@@ -4,10 +4,10 @@ A color pallete inspired by one of the color my girlfriend adores (biege). This 
 
 ## Basic Etymology
 
-**cynosure** - https://dictionary.cambridge.org/dictionary/english/cynosure or https://www.merriam-webster.com/dictionary/cynosure 
+**-cynosure-** - https://dictionary.cambridge.org/dictionary/english/cynosure or https://www.merriam-webster.com/dictionary/cynosure 
 
-c**yna**sure - nickname of my girlfriend
+c **-yna-** sure - nickname of my girlfriend
 
-**cyno**sure - relavance to dogs (Cynocephaly)
+**-cyno-** sure - relavance to dogs (Cynocephaly)
 
 sounds like signature, which kinda cool for me
