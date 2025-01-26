@@ -1,1 +1,1 @@
-# cyna (Color Yare Neutral Art)
+# cyna (Color Yapper Neutral Art)
