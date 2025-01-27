@@ -1,1 +1,1 @@
-# cyna (Color Yapper Neutral Art)
+# cyna (Complicated Yapper Neutral Art) Colors
